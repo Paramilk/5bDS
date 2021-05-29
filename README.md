@@ -2,7 +2,7 @@
 A (Upcoming) Port Of Cary Huang's BFDIA 5b (Or Just '5b') on the Nintendo DS 
 
 What Is BFDIA?
-BFDI (Battle For Dream Island) Is a webseries created by Cary and his brother Michael on their channel www.youtube.com/user/jacknejelify About 20 contestants battling for Dream Island a luxury island.
+BFDI (Battle For Dream Island) Is a webseries created by Cary and his brother Michael on their channel www.youtube.com/user/jacknjelify About 20 contestants battling for Dream Island a luxury island.
 In 2012 JNJ created the 2nd season of BFDI called Battle For Dream Island Again(BFDIA) Where 22 contestants (12 returning contestants and 10 new contestants) battle for dream island again but sadly due to jnj adsense account being disabled around 2013 they stopped making videos and went into a hiatus until 2016 where the only episode of the 3rd season (idfb) was released making BFDIA cannceled with only 5 episodes released (the 5th was released in  5 parts)
 
 What is 5b
